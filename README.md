@@ -1,1 +1,1 @@
-# .github
+GOD MODE FOR RETAIL
